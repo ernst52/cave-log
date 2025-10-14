@@ -84,8 +84,6 @@
     <sub>Gour pool section.</sub><br><br>
     <img src="images/มุกมิก.jpg" width="40%"><br>
     <sub>มุกมิก, flowstone idk.</sub><br><br>
-    <img src="images/foundfootage.jpg" width="40%"><br>
-    <sub>Found footage.</sub><br><br>
     <img src="images/calcite291.jpg" width="40%"><br>
     <sub>Big calcite deposite.</sub><br><br>
     <img src="images/bigdih.jpg" width="40%"><br>
@@ -104,8 +102,6 @@
 
     <img src="images/mookmickfreaky.jpg" width="40%"><br>
     <sub>Freaky Mick.</sub><br><br>
-    <img src="images/newfittt.jpg" width="40%"><br>
-    <sub>New fit lol, almost proper a caving gear. Mick still got legacy set on.</sub><br><br>
     <img src="images/upperviewlight.jpg" width="40%"><br>
     <sub>Upper view.</sub><br><br>
     <img src="images/mickclimb.png" width="40%"><br>
