@@ -101,7 +101,7 @@
 - **Second visit:** Wednesday, 3rd September 2025. Showed up again with a new fit, now I finally ditched that old ass M65 jacket and stupid ass cheap chinese light, I came up with Black diamond headlamp, still I should've bough Sofirn instead bruh, my BD are meant for trail running not caving so it ended up getting scracthes. And also I bought a new helmet too, a proper climbing helmet but not caving but it works anyways, whole lot better than a stolen contruction hardhat I used to wear. Anyways we only take a look at entrance chamber and sun chamber, also upper view too. And there's like an army of ladybugs
 
     <img src="images/mookmickfreaky.jpg" width="40%"><br>
-    <sub>Freaky Mick.</sub><br><br>
+    <sub>Freaky Mick — Sun chamber</sub><br><br>
     <img src="images/upperviewlight.jpg" width="40%"><br>
     <sub>Upper view.</sub><br><br>
     <img src="images/mickclimb.png" width="40%"><br>
