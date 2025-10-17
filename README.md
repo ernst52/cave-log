@@ -109,7 +109,7 @@
     <img src="images/IMG_20250903_133015.jpg" width="40%"><br>
     <sub>Gazillion of ladybugs</sub><br><br>
 
-- **Third visit:** Friday, 17th October 2025. Litearlly like last time but with new fit flexing. Found a couple of climbers from Hua Hin too, white dude that speaks thai so good.
+- **Third visit:** Friday, 17th October 2025. Litearlly like last time but with new fit flexing. Found a couple of climbers from Hua Hin too, white dude that speaks Thai so good.
 
     <img src="images/photo_2025-10-17_21-15-28.jpg" width="40%"><br>
     <sub>Jong trying my Canon EOS300 — Sun chamber</sub><br><br>
