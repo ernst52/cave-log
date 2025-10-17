@@ -109,6 +109,13 @@
     <img src="images/IMG_20250903_133015.jpg" width="40%"><br>
     <sub>Gazillion of ladybugs</sub><br><br>
 
+- **Third visit:** Friday, 17th October 2025. Litearlly like last time but with new fit flexing. Found a couple of climbers from Hua Hin too, white dude that speaks thai so good.
+
+    <img src="images/photo_2025-10-17_21-15-28.jpg" width="40%"><br>
+    <sub>Jong trying my Canon EOS300 — Sun chamber</sub><br><br>
+    <img src="images/photo_2025-10-17_20-47-11.jpg" width="40%"><br>
+    <sub>Me with the new fit — Sun chamber</sub><br><br>
+
 ## CM0355 Tham Pha Dtaek
 ### Discovered via: Martin's website
 - **First visit:** Wednesday, 20 August 2025. I didn't go inside since I visited this for first time the same day as CM0062. I'm not sure if it's acutally CM0354 or CM0355 but I'll call it CM0355 anyways because it seems to fit the map description, I only peeked at the entrance today. And the pin wasn't precise at all so I got lost and confused abit.
@@ -138,6 +145,16 @@
     <img src="images/dumb_ahh.jpg" width="40%"><br>
     <sub>Dumb ahh.</sub><br><br>
 
-## To be Continued
+- **Second visit:** Friday, 17th October 2025. Came back again to take a revenge, I'm actully still scared of spiders but I tried my best move on and not scream, and it worked. The cave is still partially flooded, but still possible to continue crawling for a while. We're all soaked full body, had this one section where we had to dive down and drinking up these disgusting water. Also we found some beautiful looking shell, like the one where you would never saw on land. And yeah there's a big ass spider at entrance hole, but good thing is these fucker are slow and doesn't aware of it's surrounding unlike huntmans. Also lesson learned, never bring a fucking waist bag attached to your back. I got stuck and it got snatched off mid way and I also we've lost a map somewhere inside lol, hopefully some random caver will found it eventually.
 
+    <img src="images/leftofff.JPG" width="40%"><br>
+    <sub>This is where we were left off(where the red arrow pointed) since it's impossible to continue foward without doing a full dive.</sub><br><br>
+    <img src="images/photo_2025-10-17_19-56-59.jpg" width="40%"><br>
+    <sub>Me and Jong. Certainly soaked up bad with disgusting water.</sub><br><br>
+    <img src="images/photo_2025-10-17_20-50-28.jpg" width="40%"><br>
+    <sub>Found footage — Me and Gus.</sub><br><br>
+    <img src="images/photo_2025-10-17_20-50-36.jpg" width="40%"><br>
+    <sub>The shell I mentioned earlier.</sub><br><br>
+
+## To be Continued
 <img src="images/ibuki.jpg" width="40%"><br>
