@@ -98,7 +98,7 @@
     <img src="images/IMG_20250820_161039.jpg" width="40%"><br>
     <sub>Upper entrance stairs.</sub><br><br>
 
-- **Second visit:** Wednesday, 3rd September 2025. Showed up again with a new fit, now I finally ditched that old ass M65 jacket and stupid ass cheap chinese light, I came up with Black diamond headlamp, still I should've bough Sofirn instead bruh, my BD are meant for trail running not caving so it ended up getting scracthes. And also I bought a new helmet too, a proper climbing helmet but not caving but it works anyways, whole lot better than a stolen contruction hardhat I used to wear. Anyways we only take a look at entrance chamber and sun chamber, also upper view too. And there's like an army of ladybugs
+- **Second visit:** Wednesday, 3rd September 2025. Showed up again with a new fit, now I finally ditched that old ass M65 jacket and stupid ass cheap chinese light, I came up with Black diamond headlamp, still I should've bought Sofirn instead bruh, my BD are meant for trail running not caving so it ended up getting scracthes. And also I bought a new helmet too, a proper climbing helmet but not caving but it works anyways, whole lot better than a stolen contruction hardhat I used to wear. Anyways we only take a look at entrance chamber and sun chamber, also upper view too. And there's like an army of ladybugs
 
     <img src="images/mookmickfreaky.jpg" width="40%"><br>
     <sub>Freaky Mick — Sun chamber</sub><br><br>
@@ -109,10 +109,10 @@
     <img src="images/IMG_20250903_133015.jpg" width="40%"><br>
     <sub>Gazillion of ladybugs</sub><br><br>
 
-- **Third visit:** Friday, 17th October 2025. Litearlly like last time but with new fit flexing. Found a couple of climbers from Hua Hin too, white dude that speaks Thai so good.
+- **Third visit:** Friday, 17th October 2025. Litearlly like last time but with new fit flexing. Found a couple of climbers from Hua Hin too, white dude that speaks Thai so good. I also finally bought Sofirn lights.
 
     <img src="images/photo_2025-10-17_21-15-28.jpg" width="40%"><br>
-    <sub>Jong trying my Canon EOS300 — Sun chamber</sub><br><br>
+    <sub>Jong trying my Canon EOS300 and the new Sofirn I lended him — Sun chamber</sub><br><br>
     <img src="images/photo_2025-10-17_20-47-11.jpg" width="40%"><br>
     <sub>Me with the new fit — Sun chamber</sub><br><br>
 
